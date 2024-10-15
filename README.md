@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @christianjohn
+- 👀 I’m interested in Computer Programming.
+- 🌱 I’m currently learning a ICT course for my futuristic programmer.
+- 💞️ I’m looking to collaborate on society.
+- 📫 How to reach me private message me on Facebook or instragran: @john_01
+- 😄 Pronouns: English & Filipino
+- ⚡ Fun fact: Be enough!
